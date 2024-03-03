@@ -1,0 +1,1 @@
+- M.Sc. Cybernetics & Robotics student at NTNU
